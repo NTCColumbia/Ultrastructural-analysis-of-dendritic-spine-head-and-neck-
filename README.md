@@ -1,1 +1,1 @@
-# Ultrastructural-analysis-of-dendritic-spine-head-and-neck-
+# Ultrastructural-analysis-of-dendritic-spine-head-and-neck
